@@ -8,5 +8,5 @@
 
 
 ## THANK YOU FOR SEE IT 
-### PLS FOLLOW
+### please FOLLOW
 ## Rate my Repo ⭐ !!!
